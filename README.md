@@ -3,7 +3,7 @@
 
 | Item | Notes | Where to Buy |
 | ----------- | ----------- | ----------- |
-| Unorthodox Roasters coffee: Wee Stoater | Espresso or french press grind | https://www.unorthodoxroasters.co.uk/product-page/wee-stoater |
+| [Unorthodox Roasters coffee: Wee Stoater](https://www.unorthodoxroasters.co.uk/product-page/wee-stoater) | Espresso or french press grind | (https://www.unorthodoxroasters.co.uk/product-page/wee-stoater) |
 | Unorthdox Roasters coffee: Tokyo Espresso | Espresso or french press grind | https://www.unorthodoxroasters.co.uk/product-page/tokyo-espresso |
 | Unorthdox Roasters coffee: Wee Cracker | Espresso or french press grind | https://www.unorthodoxroasters.co.uk/product-page/wee-cracker |
 | Shure AONIC 215 wired earbuds | Needs to be wired, I'm avoiding wireless earbuds | https://www.amazon.co.uk/dp/B08H5TK1H5 |
