@@ -1,5 +1,6 @@
 # Gift List Ideas, 2025
 
+
 | Item | Notes | Where to Buy |
 | ----------- | ----------- | ----------- |
 | Unorthodox Roasters coffee: Wee Stoater | Espresso or french press grind | https://www.unorthodoxroasters.co.uk/product-page/wee-stoater |
