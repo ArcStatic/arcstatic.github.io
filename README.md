@@ -56,5 +56,6 @@
 | [Winsor and Newton silver ink](https://www.cassart.co.uk/winsor-newton-ink-14ml-silver--c/) |  |
 | [Winsor and Newton white ink](https://www.cassart.co.uk/winsor-newton-ink-14ml-white--c/) |  |
 | [Handmade aquamarine glaze mug](https://www.rupertblamire.com/collections/mug/products/mug-aquamarine) |  |
+| Lava lamps | I don't have a link to a specific one, they're all pretty cool |
 
 
